@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on something.
 - 📫 How to reach me radiyakbegum@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I am a Muslim.
+- ⚡ Fun fact: I am a Hufflepuff.
 
 <!---
 RadiyaBegum/RadiyaBegum is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
